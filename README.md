@@ -1,4 +1,4 @@
-# Privacy Policy for VietDeal Finder
+# Privacy Policy for TaxCheck VN
 
 **Last Updated: February 25, 2026**
 
